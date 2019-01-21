@@ -13,28 +13,41 @@ Your responses may be point form, or 1–2 paragraphs about each site as long as
 
 ---
 ## Site 1
+* https://mastchocolate.com/
+* I opened Pinterest and clicked on an appealing picture and followed the link to the source website.
+* 
 
 
 
 ---
 ## Site 2
+* https://themindsjournal.com/
+* I selected another appealing image on Pinterest and followed the link to the source website.
 
 
 
 ---
 ## Site 3
+* https://www.balletforadults.com/
+* Again I selected a rondom Pinterest image
 
 
 
 
 ---
 ## Site 4
+* http://www.thecutecats.com/
+* Pinterest again!
+
 
 
 
 
 ---
 ## Site 5
+* https://wafflestopsrq.wordpress.com/
+* And...drumroll, please...Pinterest (surprised?)
+
 
 
 
